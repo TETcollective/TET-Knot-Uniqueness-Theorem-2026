@@ -5,7 +5,7 @@ Proof of the oriented right-handed trefoil knot (3₁, Lk=6) as the unique primo
 
 **Proof of the Three-Leaf Clover as Primordial Cosmic Knot** 🚀❤️✨
 
-Independent Researcher – TET Collective, Rome, Italy  
+Simon Soliman, Independent Researcher – TET Collective, Rome, Italy  
 ORCID: 0009-0002-3533-3772  
 Contact: tetcollective@proton.me  
 Website: https://tetcollective.org  
@@ -26,7 +26,7 @@ The universe emerges as an eternal, self-correcting topological quantum simulato
 
 ## Copyright and Usage Rights
 
-© 2026 TET Collective, Rome, Italy. **All Rights Reserved.**
+© 2026 Simon Soliman, TET Collective, Rome, Italy. **All Rights Reserved.**
 
 No open license is granted. This work is shared for personal reading, study, and fair use only.
 
